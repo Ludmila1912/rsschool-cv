@@ -26,7 +26,7 @@ Work experience
 Education
 ---------
 
-*   Vitebsk State medical University, Pharmaceutical Faculty (2018)
+*   Vitebsk State medical University, Pharmaceutical Faculty (2017)
 
 
 Languages
