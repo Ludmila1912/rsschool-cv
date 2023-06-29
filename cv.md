@@ -4,8 +4,6 @@ Maretskaya Liudmila
 *   [](mailto:luyda_aks@mail.ru)
 *   [](tel:+375259186077)
 
-Maretskaya Liudmila
---------------------
 
 About Me
 --------
